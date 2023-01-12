@@ -1,3 +1,4 @@
 # assignment-1
 this is video link professor
-https://drive.google.com/file/d/1-dx-fHasVL6CO8f8s0aPbU15hN-ruiIQ/view?usp=sharing
+https://drive.google.com/file/d/1Gj76qW6bczg2aGIXMAC5LMI34RgrUwMV/view?usp=sharing
+im also uploading this video in github repository
